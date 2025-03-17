@@ -10,6 +10,14 @@ The swift will claim victory, the slow will feast on tropical fruit! 🍍🔥
 Also, no lies, the lion was the one who started all this coding stuff… It clawed at the keyboard day and night! 🦁💻🔥
 
 
+Now, let’s take a look at what he’s been up to… in his own voice!” 🔊🦁
+
+     |  |
+     |  |
+    \    /
+     \  /
+      \/
+
 
  
 
