@@ -12,11 +12,7 @@ Also, no lies, the lion was the one who started all this coding stuff… It claw
 
 Now, let’s take a look at what he’s been up to… in his own voice!” 🔊🦁
 
-     |  |
-     |  |
-    \    /
-     \  /
-      \/
+⬇️ ⬇️ ⬇️
 
 
  
